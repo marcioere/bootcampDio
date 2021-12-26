@@ -1,2 +1,2 @@
-# Minhas trilas de aprendizagem na plataforma da @digitalinovationone
+# Minhas trilas de aprendizagem na plataforma da Digital Inovation One
 
